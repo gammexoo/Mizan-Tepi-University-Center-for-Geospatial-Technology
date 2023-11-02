@@ -1,0 +1,1 @@
+# Mizan-Tepi-University-Center-for-Geospatial-Technology
